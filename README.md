@@ -1,1 +1,1 @@
-https://sub.slayfi.ru/ihtGE8uE3yS5rZ9EXGDb
+https://cloud.mail.ru/public/84aA/qBHECJNcs
